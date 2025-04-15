@@ -1,0 +1,7 @@
+- yo, im poppin
+- be coding shi sometimes
+- ego out of this world
+- cocky as hell
+- used to ruin skids/larps/extorters (return?)
+- antiextortion :p
+- you could be next 👀
